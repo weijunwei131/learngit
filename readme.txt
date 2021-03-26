@@ -4,3 +4,5 @@ sdgsfd
 
 I will be future star
 我第一次修改，且add
+myboss stupid 我add了
+myboss taicunle
